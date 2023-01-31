@@ -2,4 +2,4 @@
 YnF Official Website
 
 - There is a great posibility of gugugugu due to schoolwork
--                   ---mmddez(nigesb/wutiruo)
+-                   ---mmddez(nigesb/FrankWtr)
